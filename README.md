@@ -1,1 +1,1 @@
-# skedultka5milbos
+# scheduletka5milbos
